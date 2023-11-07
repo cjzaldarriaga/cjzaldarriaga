@@ -1,4 +1,7 @@
-### Hi there 👋 I am CJ Zaldarriaga, I am known as CJ or Jorel
+### Hi there 👋 I am CJ Zaldarriaga
+
+## Nickname: CJ or Jorel
+
 
 
 <!--
